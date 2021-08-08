@@ -30,43 +30,43 @@ They **accepted** Deven their leader...
 
 ## 1、Fall in Love with English（爱上英语）
 
-Hiding behind the loose dusty curtain, 
+Hiding **behind** the loose dusty curtain, 
 
 躲在背后在松散的灰层窗帘
 
-a teenager packed up his overcoat into the suitcase. 
+a **teenager** packed up his overcoat into the suitcase. 
 
 青少年 包装 箱子里 大衣装进 手提箱
 
-He planned to leave home at dusk ，though there was thunder and lightning outdoors.
+He planned to leave home at **dusk** ，though there was **thunder** and lightning outdoors.
 
 他 打算  离开  家 在 黄昏，虽然 在哪 是 打雷 和 亮  户外
 
- He had got to do this because he was tired of his parents’
+ He had got to do this because he was **tired** of his parents’
 
 他 是 不得不  这样做 因为 它是厌倦他的父母
 
- nagging about his English study and did not want to go through it any longer. 
+ **nagging** about his English study and did not want to go through it any longer. 
 
 唠叨 关于  他的 英语成绩  并且 不想    再经历忍受  
 
-He couldn’t get along well with English and disliked joining in English classes 
+He couldn’t get along well with English and disliked **joining** in English classes 
 
 他  不能   沿着 继续关于英语     和不喜欢  参加  英语课
 
-because he thought his teacher ignored him on purpose. 
+because he **thought** his teacher **ignored** him on **purpose**. 
 
 因为 它 以为  他的 老师  忽略它 是 有意的
 
-As a result, his score in each exam never added up to over 60.
+As a **result**, his score in each exam never added up to over 60.
 
 ​    结果   他的分数 在每次考试 从未  合计   过 60分
 
-His partner was concerned about him very much. 
+His partner was **concerned** about him very much. 
 
 他的搭档 是  担忧   他的 非常
 
-She understood exactly what he was suffering from, 
+She **understood** exactly what he was **suffering** from, 
 
 她 明白  确切  他      痛苦来源
 
@@ -74,23 +74,23 @@ but entirely disagreed with his idea.
 
 但是 完全 不同意  他的想法
 
-In order to calm him down and settle his problem, 
+In **order** to **calm** him down and **settle** his **problem**, 
 
 为了 命令他 平静 下来 并   解决 他的 问题
 
-she talked with him face to face and swapped a series of learning tips with him. 
+she talked with him face to face and **swapped** a **series** of learning **tips** with him. 
 
 她 交谈 和  他  面 对 面 并且  交换 一系列 关于 学习技巧给他
 
-The items she set down helped him find the highway to studying English well.
+The items she set down helped him **find** the **highway** to studying English well.
 
 这几项 她  写下  帮助  他  寻找  捷径  关于 学习英语 最好的
 
-The teenager was grateful and got great power from his friend’s words. 
+The **teenager** was **grateful** and got **great power** from his friend’s words. 
 
 这个 青年  是  感激  并且 有了强大动力 来自他的朋友的方法
 
-Now, he has recovered from being upset and has fallen in love with English.
+Now, he has **recovered** from being upset and has **fallen** in love with English.
 
 现在 他 是 恢复     存在 心烦 和 沮丧  并 爱上了英语
 
