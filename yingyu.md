@@ -24,6 +24,5 @@ He **went** to the King’s Palace. He **found** the King sleeping. He opened a 
 
  
 
-They **accepted** Deven their leader...。。
-
+They **accepted** Deven their leader
 
